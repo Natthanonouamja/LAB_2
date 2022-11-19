@@ -1,2 +1,2 @@
-# LAB_2
+# LAB_2 Nathanon Ouamja 336B
  
